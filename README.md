@@ -1,0 +1,2 @@
+hadi hayırlısı :)
+bugün bazartesi :)
